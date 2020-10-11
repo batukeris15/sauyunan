@@ -1,0 +1,2 @@
+# sauyunan
+kelompok usaha bersama
